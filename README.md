@@ -1,1 +1,1 @@
-MYSELF HIMANSHU MAWDI AND I AM A STUDENT OF BCA(Hons.) AI&DS OF SECTION D at Graphic Era University, Dehradun 
+Myself Himanshu Mawdi and I am taking my ungrad degree of BCA(Hons.) AI AND DS from Graphic Era Deemed to be University, Dehradun
